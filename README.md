@@ -1,0 +1,1 @@
+People with OCD or ADHD often forget about their tasks and wonder if they have done it or not. This app will help them keep track of their tasks and not lose their mind. Thus, Savor the flavor of health. 
